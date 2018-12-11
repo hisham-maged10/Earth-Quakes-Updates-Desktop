@@ -1,0 +1,1 @@
+# Earth Quakes Updates-Desktop
